@@ -16,7 +16,7 @@ Zihan Guo:
 
 Amanda He:
 
-Rolland He:
+Rolland He: My name is Rolland, and I'm a third-year computer science student.
 
 Kevin Hu:
 
